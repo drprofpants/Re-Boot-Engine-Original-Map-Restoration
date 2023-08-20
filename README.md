@@ -13,3 +13,5 @@ I don't know anything about Gamemaker studio, and such coding languages assosiat
 I would also ask you if someone finds this to respect scooterboot's wishes as to not cover it on a Youtube 
 video, or highly publicise it. It would greatly hurt the project if Nintendo decided to strike this, so 
 only admire or contribute.
+
+THIS WILL TAKE A WHILE
